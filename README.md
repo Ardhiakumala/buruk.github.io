@@ -1,0 +1,1 @@
+# buruk.github.io
